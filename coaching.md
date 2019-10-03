@@ -1,3 +1,8 @@
-Services
+Having worked in the business and personal finance sector for the past 30 years, I have seen countless variations of “success” and “failure”.  Practicing yoga for 20 of those years has given me a context to ponder success and failure within.  After having completed my basic yoga teacher training, I had a light bulb moment as one of my own coaches succinctly asked me, “Do you want to teach yoga? Or do you want to use yoga to teach?”  The clarity of the statement brought me to the understand that I have more to offer students and clients than simple pranayama and asana sequences; I have a unique perspective having sought through my own practice and study of yoga to discern and distill the Universal truths applicable to all human endeavor regardless of a person’s individual religious belief or spiritual journey.  This recontextualization of yogic truths and principles brings clarity of thought, clarity of speech and clarity of action to 21st c. English speaking seekers.  I welcome the opportunity to work with you in uncovering your own truth.
 
-Training
+$80/session (60-75 minutes) via phone or Skype
+$280/4 session prepaid package via phone or Skype
+$110/in person session, (75-90 mins) which includes yoga, meditation or vibrational sound experience to enhance coaching session.
+Session must be prepaid in order to confirm your appointment time.  I currently accept payment via Paypal.
+
+Please call for your complimentary get acquainted conversation so that together we can discern if my coaching services and style are right for you.  I have a thought provoking new client intake questionnaire which has been designed to elicit the same information I would gather in an introductory session.  Please give this thoughtful and thorough attention so that we will be able to jump right into the work that will be most valuable to you.  That said, do not allow the questionnaire to become an obstacle to moving forward.  If you find this overwhelming, we will progress at a pace that is comfortable for you.  Some people find it useful to ponder issues in advance and to reveal themselves in writing rather than conversation.
